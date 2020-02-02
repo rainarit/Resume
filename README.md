@@ -1,3 +1,3 @@
-# Resume
+# Ritik Raina - Resume
 
-![https://imgur.com/UZrbsBH](https://i.imgur.com/UZrbsBH.jpg)
+![Ritik Raina Resume](https://i.imgur.com/UZrbsBH.jpg)
